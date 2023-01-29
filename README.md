@@ -1,0 +1,1 @@
+# SHINARU_INU_LogoAsset
